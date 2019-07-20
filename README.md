@@ -1,4 +1,4 @@
 # Resume
 
 
-![alt text](https://ibb.co/y84JgHn)
+![alt text](https://i.ibb.co/khmFqNg/resume.png)
